@@ -1,2 +1,2 @@
 # Client
-education purpose only no copy or dowload this file .This is a real hack.
+education purpose only no you will be responsible if u use this .This is a real hack client.
